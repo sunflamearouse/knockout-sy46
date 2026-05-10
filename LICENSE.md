@@ -1,4 +1,4 @@
-
+blade ball Script advanced is the best blade ball Script, featuring auto-collect and god mode. Safe and powerful for all your needs.
 
 
 
